@@ -9,6 +9,8 @@
 - 💞️ I’m looking to collaborate on open-source projects.
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I get nervous around many people.
+- 📫 Email: [mb2788001@gmail.com](mailto:mb2788001@gmail.com)
+- 🌐 Portfolio: [silentcodersuman.000webhostapp.com](https://silentcodersuman.000webhostapp.com)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
